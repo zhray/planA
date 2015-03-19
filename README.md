@@ -1,2 +1,2 @@
 # planA
-no inspiration a
+no inspiration a b
