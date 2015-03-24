@@ -1,3 +1,3 @@
 # planA
-no inspiration a h c ee ooo
+no inspiratirn a h c ee ooo
 µãµãµÎµÎ
