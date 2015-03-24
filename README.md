@@ -1,3 +1,3 @@
 # planA
-no inspiratirn a h c ee ooofb
+no inspiratirn a h c ee ooofbc
 µãµãµÎµÎ
